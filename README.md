@@ -1,4 +1,3 @@
-# hello
 # How did Tengrism survive through Islamization in pre-Kazakhstan?
 
 **20230965 Alua Kaliazhdarova**
@@ -28,10 +27,6 @@ But Tengrist traditions still exist in Kazakhstan today, often blended with Isla
 To this day, some people claim themselves to be Tengrist in modern Kazakhstan, and other Turkic countries (Laruelle, 2007), despite sedentary lifestyle being unsuitable for Tengrism. Moreover, Tengrism is not the ethnic religion of Kazakhs as they claim it to be, because Islam has always been the religion of Kazakhs since the nation came together in 1465. In other words, neo Tengrism is mostly just a response to the rapid and somewhat radical Islamization in Kazakhstan. In today's world many Islamists oppose the traditional customs of Kazakhs that stayed from Tengrism, like the ones mentioned above. But by rejecting religious attire and practices, modern Tengrists often mirror the Islamists, whose rigid values they oppose. The "religion vs tradition" debate that keeps resurfacing on social media further divides people of the same nation. Islam and Tengrism have coexisted for centuries, so there is no need to deny either.
 
 Tengrism might not be practiced as an official religion today, yet it is rooted so deeply in Kazakh identity, history, spirituality, and tradition. Merging and adapting through centuries, it creates a unique version of Kazakh Islam, seen in funerals, architecture, and daily life. Kazakh spirituality is not authentically Muslim or Tengrist, but a legacy of both. Tengrism lives on not through books or temples, but through generations of oral tradition, seemingly fragile, but surprisingly persistent and hard to erase.
-
----
-
-*"Spirit of Ancestors" by Beisembai Akzel.*
 
 ## References
 
