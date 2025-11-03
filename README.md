@@ -1,6 +1,6 @@
 # How did Tengrism survive through Islamization in pre-Kazakhstan?
 
-**20230965 Alua Kaliazhdarova**
+**Alua Kaliazhdarova**
 
 Tengri (or tänri in Old Turkic, tänir in Kazakh) from Turkic and Mongolic languages means "sky". It is the basis of Tengrism, an ancient belief in the sky god and in deities and spirits connected to it. This belief system was practiced in many Turkic and Mongolic, deeply influencing the nomad culture. Although Tengrism is considered long extinct, as the followers have all gradually converted to Islam or Buddhism or other religions, its influence persists through centuries of religious changes in Central Asia and its values and practices shape the modern-day culture of the region.
 
